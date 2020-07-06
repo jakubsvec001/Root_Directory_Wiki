@@ -1,0 +1,9 @@
+An academic discipline or academic field is a subdivision of knowledge that is taught and researched at the college or university level. Disciplines are defined (in part) and recognized by the academic journals in which research is published, and the learned societies and academic departments or faculties within colleges and universities to which their practitioners belong. It includes language, art and cultural studies and other scientific disciplines.
+
+It incorporates expertise, people, projects, communities, challenges, studies, inquiry, research areas, and facilities that are strongly associated with a given scholastic subject area or college department. For example, the branches of science are commonly referred to as the scientific disciplines, e.g. physics, chemistry, and biology.
+
+Individuals associated with academic disciplines are commonly referred to as experts or specialists. Others, who may have studied liberal arts or systems theory rather than concentrating in a specific academic discipline, are classified as generalists.
+
+While academic disciplines in and of themselves are more or less focused practices, scholarly approaches such as multidisciplinarity/interdisciplinarity, transdisciplinarity, and cross-disciplinarity integrate aspects from multiple academic disciplines, therefore addressing any problems that may arise from narrow concentration within specialized fields of study. For example, professionals may encounter trouble communicating across academic disciplines because of differences in language, specified concepts or methodology.
+
+Some researchers believe that academic disciplines may, in the future, be replaced by what is known as Mode 2 or "post-academic science", which involves the acquisition of cross-disciplinary knowledge through collaboration of specialists from various academic disciplines. 
